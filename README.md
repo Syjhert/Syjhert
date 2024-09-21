@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Syjhert
-- 💞️ I’m looking to collaborate on ...
 - 😄 Pronouns: Yes/No
 
 <!---
